@@ -3,4 +3,5 @@
 2. what i do: i write, i think, i read, i repeat.
 3. what are my concerns: arts & culture, environment, southeast asia, việt nam, critical theory, language, onomastics, digital network, meme. 
 4. where i study: mcgill university, 2020-2024, BA cultural studies + international development. 
-*last updated: 20/02/2022
+
+*last updated: 20/02/2022*
